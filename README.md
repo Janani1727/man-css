@@ -1,2 +1,2 @@
 
-![Screenshot (50)](https://github.com/Janani1727/man-css/assets/109611448/c6258432-7e67-4354-9c8e-2db120a69b5b)
+![Screenshot (54)](https://github.com/Janani1727/man-css/assets/109611448/b0b208c0-885f-4e7c-b3f2-0105168127d2)
